@@ -1,6 +1,7 @@
 # queenmonica12.github.io
 Queen Monica Q. Monit
 
+
 ![Simbang Gabi](https://asianjournal.com/wp-content/uploads/2021/12/Simbang-Gabi-1.jpg)
 
 It is now Christmas Season once again! Are you excited to celebrate Christmas once again with your family? To have some quality time with our loved ones, the gifts to receive, or rather the cooking of Noche Buena? Here in the Philippines, September is considered the first month of the Christmas Season. Are you excited to celebrate Christmas once again with your family? Each region has its traditions and culture. 
